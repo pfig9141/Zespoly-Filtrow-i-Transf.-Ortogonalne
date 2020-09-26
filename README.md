@@ -1,0 +1,1 @@
+# Zespoly-Filtrow-i-Transf.-Ortogonalne
